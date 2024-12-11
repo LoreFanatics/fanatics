@@ -3,7 +3,7 @@
 
 ## Hi! We're the Fanatics. PTSD-DID system !
 
-We love Ponytown!! hehe. C + H is weclome!!
+We love Ponytown!! hehe. C + H is weclome!! We hide freely JSYK!!
 Mostly useing ponies of our fictives (maybe!)
 
 
